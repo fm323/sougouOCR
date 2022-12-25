@@ -1,2 +1,2 @@
 # sougouOCR
-搜狗截图ocr
+~LFCBPNFI~ -RCFDKL- $GGMPIM$ ￥PHEG￥ ∑MENMKKHBKMFOMB∑
